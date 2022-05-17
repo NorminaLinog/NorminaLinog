@@ -2,7 +2,31 @@
 - 👀 I’m interested in working with different tasks
 - 🌱 I’m currently learning more on about technology
 - 💞️ I’m looking to collaborate on working as virtual assistant or digital marketing 
-- 📫 How to reach me? via email: norminamirandalinog@gmail.com or call: +639952663359![vote](https://user-images.githubusercontent.com/105713973/168785265-50a7c715-86a6-4f37-b2b6-27e9da8b1962.png)
+- 📫 How to reach me? via email: norminamirandalinog@gmail.com or call: +639952663359!
+HERE ARE SOME OF MY WORKS
+![FEB 2022 IMPARTY ANNOUNCEMENT](https://user-images.githubusercontent.com/105713973/168785742-fb95417b-2628-4219-963d-7b313c5dac85.png)
+![62dc2ccf-3442-4cc2-82b0-57579cec7498](https://user-images.githubusercontent.com/105713973/168785758-822c1b88-cbf9-4691-bef7-4a4dc67dc77a.png)
+[Mar 7, 2022.csv](https://github.com/NorminaLinog/NorminaLinog/files/8707253/Mar.7.2022.csv)
+[Jan 16, 2022.csv](https://github.com/NorminaLinog/NorminaLinog/files/8707254/Jan.16.2022.csv)
+[Jan 9, 2022.csv](https://github.com/NorminaLinog/NorminaLinog/files/8707255/Jan.9.2022.csv)
+[Jan 2, 2022.csv](https://github.com/NorminaLinog/NorminaLinog/files/8707256/Jan.2.2022.csv)
+[Dec 26, 2021 (1).csv](https://github.com/NorminaLinog/NorminaLinog/files/8707257/Dec.26.2021.1.csv)
+![Oct-Motivation1](https://user-images.githubusercontent.com/105713973/168786501-3b6917a7-9a6d-4eb1-ba25-39457fc40560.png)
+[Dec 19, 2021 (1).csv](https://github.com/NorminaLinog/NorminaLinog/files/8707258/Dec.19.2021.1.csv)
+[Dec 12, 2021.csv](https://github.com/NorminaLinog/NorminaLinog/files/8707259/Dec.12.2021.csv)
+![1 DAY TO GO IAN STANLEY](https://user-images.githubusercontent.com/105713973/168786521-e9def870-c321-4c44-9cf1-82043cfeed83.png)
+![IAN STANLEY SPEAKER](https://user-images.githubusercontent.com/105713973/168786522-8efa21c6-2b46-4ab0-9431-173e72e482ea.png)
+![LIVE VIRTUAL NOVEMBER](https://user-images.githubusercontent.com/105713973/168786527-8eb4b2ea-26eb-45c2-a624-ab6f71f8d981.png)
+![LIVE IN PERSON NOVEMBER](https://user-images.githubusercontent.com/105713973/168786533-054d5c3a-7c19-46de-a916-9b83e19f870e.png)
+![1 DAY TO GO VIRTUAL FEBRUARY](https://user-images.githubusercontent.com/105713973/168786539-8216b7c9-bdee-4e0b-bbc2-12ded5045dd9.png)
+![Virtual imparty FEBRUARY zoom](https://user-images.githubusercontent.com/105713973/168786547-ee9f716a-fc5c-4dd6-8c87-968e218d0bef.png)
+![Virtual imparty FEBRUARY](https://user-images.githubusercontent.com/105713973/168786554-f7d0fddb-299a-45c8-a85c-9d1bfe0ce54e.png)
+![JANUARY VIRTUAL IMPATY IG SIZE](https://user-images.githubusercontent.com/105713973/168786562-0fd11cf4-f3bd-4d19-a60d-78df74600099.png)
+![january throwback cover](https://user-images.githubusercontent.com/105713973/168786569-6619a08e-76a9-47ae-bd26-41953505181e.png)
+![December virtual FB](https://user-images.githubusercontent.com/105713973/168786580-78ba982b-93f8-40c1-9af2-1ea9ed1beaa3.png)
+![December in person FB](https://user-images.githubusercontent.com/105713973/168786584-3b2d0dc2-158e-4210-b2f2-ab0c09841178.png)
+![December Throwback](https://user-images.githubusercontent.com/105713973/168786600-bfa687e6-01c5-4313-b89a-d83eaaf14d7b.png)
+[vote](https://user-images.githubusercontent.com/105713973/168785265-50a7c715-86a6-4f37-b2b6-27e9da8b1962.png)
 ![minggg](https://user-images.githubusercontent.com/105713973/168785275-870b1744-ddb6-4d7b-beed-c7fc5a4d56b1.png)
 ![Image from iOS (12)](https://user-images.githubusercontent.com/105713973/168785280-acebae76-8953-4da6-b58e-1b7af618aa92.jpg)
 ![soleil](https://user-images.githubusercontent.com/105713973/168785284-1b8bf69f-fe6c-43aa-b7ad-b860a485134e.png)
